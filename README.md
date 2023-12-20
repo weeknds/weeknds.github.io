@@ -1,6 +1,6 @@
 # Lizan
 Hey Lisa!
 
-I made this website just for you, I hope you love it!
+I made this website just for you, love you!
 
 // Cizze
